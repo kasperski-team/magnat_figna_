@@ -3,7 +3,6 @@
 # 🦁
 67878vthr8vcjfdhdu
 
-![Картинка](https://i.ibb.co/BH1n2j0T/98f6cb98e127aa194821e364b256e4ad.jpg)
 #  i i  uu  🦁
 
 🦁🦁🦁🦁🦁🦁🦁🦁
