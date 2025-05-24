@@ -1,0 +1,4 @@
+([('SUPER PUPER SHOOTER',
+   '/Users/kirill/VSCode/code-portable-data/extensions/algoritmika.algopython-20250402.152508.0/data/student/4783081/184431/dist/SUPER '
+   'PUPER SHOOTER',
+   'EXECUTABLE')],)
